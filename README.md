@@ -1,3 +1,4 @@
+![LOGO GAMER VEGUITAA](https://user-images.githubusercontent.com/87153934/126831394-ccdc34ed-5362-4c60-aa52-c5acf70eb2ab.png)
 ## Veguitaa is in the game
 
 - 👋 Hola!! me llamo Angel Vega
